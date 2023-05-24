@@ -13,4 +13,4 @@ natalia.lomba@escola.pr.gov.br
 
 @natymdl
 
-![descrição do GIF](https://media.tenor.com/LUFs-A8Gx0MAAAAM/dance-dancing.gif)
+![descrição do GIF](https://media.tenor.com/JQnwvyomDh4AAAAM/dog-blink.gif)
