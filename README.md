@@ -11,6 +11,6 @@ _Meu nome é **Natália**_
 
 natalia.lomba@escola.pr.gov.br
 
-@natymdl
+ig: @natymdl
 
 ![descrição do GIF](https://media.tenor.com/JQnwvyomDh4AAAAM/dog-blink.gif)
